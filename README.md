@@ -45,7 +45,7 @@ Currently working as an **Odoo Developer at Onestone Software LLP**.
 ### 🤝 Connect With Me
 
 * 💼 [LinkedIn](https://www.linkedin.com/in/rutik-patil-06b247228/)
-* 📧 [Email](mailto:patilrutik03@gmail.com)
+* 📧 [Email](mailto:rutikpatil.onestone@gmail.com)
 
 ---
 
